@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <b>Electrical & Electronics Engineering Student &nbsp;|&nbsp; 
+  <b>Electrical & Electronics Engineering Student &nbsp;
 </p>
 
 <p align="center">
