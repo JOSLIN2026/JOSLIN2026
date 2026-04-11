@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <b>Electrical & Electronics Engineering Student &nbsp;|&nbsp; Stark Labs R&D Division</b>
+  <b>Electrical & Electronics Engineering Student &nbsp;|&nbsp; 
 </p>
 
 <p align="center">
